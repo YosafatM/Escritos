@@ -1,0 +1,3 @@
+- Creado el changelog
+- Estilo seleccionado
+- Personajes añadidos
