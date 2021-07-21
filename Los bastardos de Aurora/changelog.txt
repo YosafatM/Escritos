@@ -1,3 +1,2 @@
-- Creado el changelog
-- Estilo seleccionado
-- Personajes añadidos
+- Personajes principales seleccionados
+- Capítulo que continua El aspecto de la Bondad
