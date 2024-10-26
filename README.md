@@ -6,9 +6,9 @@ creado por mi imaginación desde hace muchos años, decidí que ese era un regal
 
 Ideas terminadas:
   - El aspecto de la Bondad: Dobrilo, un chico tiene el don de poder transferir el dolor de la gente a sus esferas, pero como todo, eso tiene un precio.
+  - La Senda Celeste: la historia de por qué decidí dejar de ser manipulador y cuidar mi salud mental. Una carta de amor a mí mismo.
 
 Ideas en progreso:
-  - La Senda Celeste: la historia de por qué decidí dejar de ser manipulador y cuidar mi salud mental. Cosas muy extrañas que pasaron en ese tiempo.
   - Los Bastardos de Aurora: ¿Qué pasó antes y después de El aspecto de la Bondad?, la respuesta está en la ciudad Aurora.
   - El asesino de las Sombras: Ocurre en el mismo mundo que El aspecto de la Bondad, explicación de los extraños asesinatos en la ciudad de Dobrilo.
 
